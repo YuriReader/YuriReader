@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @YuriReader
 - 👀 I’m interested in learning about computers
-- 🌱 I’m currently learning enginiring
+- 🌱 I’m currently studying enginiring
 - 💞️ I’m looking to collaborate on nothing right now but maybe in the future
 - 📫 How to reach me, idk
 - 😄 Pronouns: She/Her
